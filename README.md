@@ -1,1 +1,1 @@
-# 1 Apple - Keeps away the Doctor
+# 1 Apple per day keeps the doctor away
